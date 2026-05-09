@@ -1,2 +1,2 @@
-# Some-random-question-i-guess-
-Idkk
+# this is pure opinion, correct me if im wrong 
+
